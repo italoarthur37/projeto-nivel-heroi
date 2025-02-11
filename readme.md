@@ -1,0 +1,1 @@
+Sou aluno da digital innovation one, e este projeto foi desenvolvido como parte de uma atividade educacional.
